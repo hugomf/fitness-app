@@ -3,7 +3,7 @@
 Dado que ya entrenas 4 días a la semana, podríamos ajustar la rutina para maximizar el crecimiento muscular, asegurándonos de incluir variaciones y técnicas que impulsen el progreso.
 
 ## Día 1: Pecho, Hombros y Tríceps
-- Press de banca con barra o mancuernas – 4 series de 8-10 repeticiones.
+- [Press de Banca](https://www.youtube.com/watch?v=0sXG5G7z1aA) con barra o mancuernas – 4 series de 8-10 repeticiones.
 - Press militar con barra o mancuernas (sentado) – 4 series de 8-10 repeticiones.
 - Elevaciones laterales con mancuernas – 3 series de 12-15 repeticiones.
 - Press inclinado con mancuernas – 3 series de 8-10 repeticiones.
